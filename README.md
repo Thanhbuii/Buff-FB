@@ -24,11 +24,7 @@
 
 100 Comment Việt: 100.000đ
 1,000 Share video: 100.000đ
-✅ Tăng Mắt Livestream
 
-100 mắt (duy trì 60 phút): 80.000đ
-500 mắt (duy trì 60 phút): 350.000đ
-1,000 mắt (duy trì 60 phút): 600.000đ
 🔥 INSTAGRAM
 ✅ Tăng Follow, Like, View
 
